@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @martinmeliendrez
+- 👀 I’m interested in leaving a mark and be a part of crypto history.
+- 🌱 I’m currently enrolled in the Blockchain Specialization offered by University at Buffalo on Coursera.
+- 💞️ I’m looking to collaborate on Dapps and Smart Contracts projects.
+- 📫 How to reach me https://linktr.ee/martinmeliendrez
