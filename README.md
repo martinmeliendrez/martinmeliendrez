@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @martinmeliendrez
 - 🌱 I’m Technical Product Manager specialized in Blockchain by University at Buffalo.
-- 👀💞️ I’m looking to collaborate on Dapps and Smart Contracts projects.
+- 👀💞️ I’m looking to collaborate on WEB3 projects.
 - 📫 How to reach me https://linktr.ee/martinmeliendrez
